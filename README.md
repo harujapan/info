@@ -1,2 +1,2 @@
-# info
-Information in README.md
+# Haru Japan
+Music Discographic
