@@ -2,7 +2,7 @@
 I'ts me, no more.
 
 # ¿What doing Haru?
-Waiting Music and ReUp (ReUpload) the favuorite music
+Waiting Music and ReUp (ReUpload) the favourite music
 
 # ¿I can Upload my own music here?
 Of Cuourse, all J-Pop is welcome
